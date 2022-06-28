@@ -1,5 +1,5 @@
 # A por euros, oeeeee !!!
-- [Formulario participación 2022](https://docs.google.com/forms/d/e/1FAIpQLSf4IL-8piPTv2mk3eZRv8ybTWkJXW0aL4-6XjX2crJjcds5uQ/viewform)
+- [Formulario participación Mundial 2022](https://docs.google.com/forms/d/e/1FAIpQLSf4IL-8piPTv2mk3eZRv8ybTWkJXW0aL4-6XjX2crJjcds5uQ/viewform)
 - Últimos eventos celebrados:
   - **Mundial 2010**: 32 países 
     - Kiniela: 48 partidos  
